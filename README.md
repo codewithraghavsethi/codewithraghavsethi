@@ -6,7 +6,7 @@
 ❤️ I love every step of the development process.  <br/>
 🧠 I'm constantly exploring new technologies and refining my skills to deliver solutions that are as enjoyable to use as they are to build. <br/>
 🤝 Let's Connect! I'm always excited to collaborate on innovative projects or just geek out over tech trends. <br/>
-🌐 Feel free to reach out if you'd like to connect! <br/>
+💞 Feel free to reach out if you'd like to connect! <br/>
 
 
 ## 🌐 Socials:
