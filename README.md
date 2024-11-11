@@ -1,4 +1,7 @@
+![github-coding-gif](https://github.com/user-attachments/assets/8a4808fd-c1e0-4a60-8498-b22342445394)
+
 ## 👋 Hello! I'm Raghav Sethi 👨‍💻
+
 🚀 I'm a passionate Full Stack Developer with a strong foundation in both frontend and backend technologies. <br/>
 ❤️ I love every step of the development process.  <br/>
 🧠 I'm constantly exploring new technologies and refining my skills to deliver solutions that are as enjoyable to use as they are to build. <br/>
